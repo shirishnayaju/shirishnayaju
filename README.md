@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects involving innovative web applications or AI solutions.
 
-📫 How to reach me: You can reach me via email at [your email address] or connect with me on LinkedIn [your LinkedIn profile link].
+📫 How to reach me: You can reach me via email at [Shirishnayaju@gmail.com].
 
 😄 Pronouns: He/Him
 
